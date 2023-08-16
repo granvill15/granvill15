@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">✨ Creating bugs since 2023<br>📚 I'm currently learning schedule<br>🎯 Goals: become a big businessman<br>🎲 Fun fact: I make bad jokes</p>
+<p align="left">✨ Creating bugs since 2023<br>📚 I'm currently learning schedule<br>🎯 Goals: become a big businessman<br>🎲 Fun fact: I know how to do everything</p>
 
 ###
 
